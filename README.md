@@ -4,6 +4,7 @@
 - 📫 How to reach me **joanalemany@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+- Lindekin: **https://www.linkedin.com/in/joan-alemany-chulilla-106203213/**
 <p align="left">
 </p>
 
